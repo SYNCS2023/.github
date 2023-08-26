@@ -1,1 +1,2 @@
-[![Leafy Link](https://github.com/SYNCS2023/LeafyLink/assets/22492406/f509be40-5422-4855-ade3-19d3aa8b38a7)](TBD)
+
+![new_cover](https://github.com/SYNCS2023/.github/assets/81507755/e4da040a-f52a-45f7-a5c7-e1e47260344f)
